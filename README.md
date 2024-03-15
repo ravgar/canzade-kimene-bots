@@ -5,8 +5,7 @@
 · Bundan Sonrada Size Prim Yok Trendyol Devleri Sizi 
 
 # CANZADE TRENDYOL DEV.
-![image](https://github.com/ravgar/canzade-kimene-bots/assets/97904458/e14cd767-a336-427a-b572-7ade1aa68754)
-
+Ekran Görüntüsü Eski Hesap Sahibinin İsteği Üzerine Kaldırılmıştır
 # KİMENE SANTO PRİM BOTCU
 ![image](https://github.com/ravgar/canzade-kimene-bots/assets/97904458/06237816-aabd-4842-ba32-bbc93e593184)
 ![image](https://github.com/ravgar/canzade-kimene-bots/assets/97904458/3ef536e2-5987-4696-a99e-214cb0fdf57e)
