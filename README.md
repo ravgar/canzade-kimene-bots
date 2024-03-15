@@ -16,8 +16,7 @@
 # İLETİŞİM İÇİN 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/1049727678091120640?hideDiscrim=true)](https://discord.com/users/1049727678091120640)
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/340047062068494337?hideDiscrim=true)](https://discord.com/users/340047062068494337)
-[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/149284207833645056?hideDiscrim=true)](https://discord.com/users/149284207833645056)
-
+# TAKACHİ KARDEŞİMİN DİSCORD NİCKİ takachixrd (149284207833645056)
 
 
 
