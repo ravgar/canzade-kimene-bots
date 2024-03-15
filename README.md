@@ -1,5 +1,5 @@
 
-# Botların Ve Kodların %99,9'u Muratva Stark ve Barbar338'e Aittir Onlarla Bi Sıkıntım Yoktur
+# Botların Ve Kodların %99,9'u Muratva Stark'a Aittir.
 · Canzade ve Kimene Eşşşeklerine Gelirsek Ücretli Dersler Verilir Saati 500 TL'den 
 · Kimseyi Tehdit Edemezsiniz Sikimin Kılları Sizi Adam Akıllı Durun 
 · Bundan Sonrada Size Prim Yok Trendyol Devleri Sizi 
@@ -16,7 +16,7 @@
 # İLETİŞİM İÇİN 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/1049727678091120640?hideDiscrim=true)](https://discord.com/users/1049727678091120640)
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/340047062068494337?hideDiscrim=true)](https://discord.com/users/340047062068494337)
-# TAKACHİ KARDEŞİMİN DİSCORD NİCKİ takachixrd (149284207833645056)
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/149284207833645056?hideDiscrim=true)](https://discord.com/users/149284207833645056)
 
 
 
