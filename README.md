@@ -1,5 +1,6 @@
 
-# Botların Ve Kodların %99,9'u Muratva Stark'a Aittir.
+# Botların Ve Kodların Birçoğu Muratva Stark'a Aittir (Geri Kalanıda Başka Yazılımcılar Tarafından Kodlanmıştır)
+# Muratva Starkın Sahibi Olduğu Lisansı Botlar https://github.com/muratvastark/eternal-darkness 
 · Canzade ve Kimene Eşşşeklerine Gelirsek Ücretli Dersler Verilir Saati 500 TL'den 
 · Kimseyi Tehdit Edemezsiniz Sikimin Kılları Sizi Adam Akıllı Durun 
 · Bundan Sonrada Size Prim Yok Trendyol Devleri Sizi 
